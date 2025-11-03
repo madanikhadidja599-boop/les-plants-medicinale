@@ -11,4 +11,4 @@ Allium sativum L.	Ail	Bulbe
 Aloe vera (L.) Burm. f. (syn. Aloe barbadensis Mill.)	Aloès	Feuille, gel, latex (jus)
 Althaea officinalis L.	Guimauve officinale, Mauve blanche, Bourbon de Saint-Jacques	Feuille, racine, fleur
 <img width="488" height="181" alt="image" src="https://github.com/user-attachments/assets/b0330ef3-01b9-47ef-b133-33af857c6936" />
-
+https://youtu.be/BV3j_HKp_Z0?si=LZ1Pj590QvBr_9PV
